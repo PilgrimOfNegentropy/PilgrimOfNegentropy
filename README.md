@@ -1,4 +1,1 @@
-负熵是无序与混乱的反面
-生命与文明, 混沌的宇宙中熵的低点
-如此的美妙而吸引人
-我是负熵的朝圣者
+fighting chaos is the responsiblity of every living being
